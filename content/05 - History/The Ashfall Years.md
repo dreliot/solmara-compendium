@@ -1,0 +1,11 @@
+The Ashfall Years were a series of worsening fire seasons that led to one catastrophic blaze. The entire crisis lasted roughly twelve to fifteen years, and the final fire raged for several years, cycling through the nation. Ash fell on and off throughout the disaster, which is why the period later became known as Ashfall.
+
+A massive drought had already lasted for years before the great fire began. Conflicts arose over water resources, and once the fires started, there was simply too much to burn. Solmara lacked the resources and infrastructure needed to stop a wildfire that had grown so far out of control. The government responded too slowly, protected wealthy areas first, concealed some of the danger, exhausted its resources, and eventually lost control of much of its territory.
+
+Some regions were more severely affected than others. Southern Solmara burned the worst, and most people agree that the great fire began somewhere in Perluz. Many claim to know exactly where it started, but it is not clear that anyone truly does. Perluz was eventually rebuilt around the ruins, although some wealthy areas survived almost intact.
+
+There are several explanations for what caused Ashfall. The Grove Cooperative teaches that it resulted from drought and ecological mismanagement. A religious explanation holds that [[Cazira]], the fire goddess and first daughter of the Mother, was raging at the loss of her mother. This belief can coexist with an environmental explanation, particularly the idea that Cazira’s grief caused the drought while mortal mismanagement made the disaster worse. The conspiracy-minded claim that mages attempting to create an endless power supply caused an explosion that lit the first fire.
+
+Ashfall ended when a rainy year finally stopped the fires. It is now remembered as both an apocalyptic, almost unimaginable tragedy and a cautionary tale. When the drought came and the water went away, communities fought instead of working together and preparing. Stories survive of redwoods flaming into heaven, and of the smell of woodsmoke making the grandparents of present-day Solmaraans shake.
+
+Before Ashfall, Solmara used a calendar with seasons resembling the old four seasons. In the ages that followed, the calendar changed to reflect the cycles people actually experienced: Melt, Burn, and Rain.
